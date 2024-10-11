@@ -1,4 +1,5 @@
 Privacy Policy
+
 Effective Date: 11th Oct 2024
 
 Introduction
